@@ -1,6 +1,7 @@
-<head>
-  <title>Head shop & smoke shop in New Mexico|buy bongs,vaporizers,hand pipes,rigs,CBD products</title>
-</head>
+*****
+Head shop & smoke shop in New Mexico|buy bongs,vaporizers,hand pipes,rigs,CBD products
+*****
+
 
 https://happyweedfriends.com is a Head shop & smoke shop located in New Mexico that have the latest smoking and cannabis accessories.You can buy bongs, vaporizers ,hand pipes, rigs,CBD products in Albuquerque, Las Cruces, Rio Rancho, Santa Fe or Roswell.
 
