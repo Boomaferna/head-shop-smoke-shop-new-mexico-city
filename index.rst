@@ -1,3 +1,7 @@
+<head>
+  <title>Head shop & smoke shop in New Mexico|buy bongs,vaporizers,hand pipes,rigs,CBD products</title>
+</head>
+
 https://happyweedfriends.com is a Head shop & smoke shop located in New Mexico that have the latest smoking and cannabis accessories.You can buy bongs, vaporizers ,hand pipes, rigs,CBD products in Albuquerque, Las Cruces, Rio Rancho, Santa Fe or Roswell.
 
 The debate of legalizing marijuana or not is akin to the age-old battle of Creationism vs. Evolution. Everyone has his or her own opinion. Who is right? Legalizing cannabis is social debate whose outcome couldn't possible please everyone.
